@@ -32,4 +32,4 @@ Aqui você encontrará:
 
 ---
 
-🔗 Me acompanhe nesta jornada: [linkedin.com/in/gabrielcelestino](https://linkedin.com/in/gabrielcelestino)  
+🔗 Me acompanhe nesta jornada: [linkedin.com/in/gabrielcelestino](https://www.linkedin.com/in/gabrielcelestinotech/)  
